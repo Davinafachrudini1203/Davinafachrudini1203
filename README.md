@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Davinafachrudini1203
+- 👀 I’m interested in Nature :)
+- 🌱 I’m currently learning myths
+- 💞️ I’m looking to collaborate on Art!
+- 📫 How to reach me Just wait.
